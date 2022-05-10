@@ -7,4 +7,3 @@ need further discussion with clients
 	-aggrement need to sign
 	
 	discussion started after asish came to picture
-	
